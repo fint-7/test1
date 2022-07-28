@@ -1,4 +1,3 @@
 green card
 blue hair
-
-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
+good
